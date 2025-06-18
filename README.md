@@ -1,4 +1,4 @@
-# Shuffle Casino Promo Code MAX100 – Claim 100% Bonus in 2025
+# Shuffle Promo Code MAX100 – Claim 100% Bonus in 2025
 
 
 ## Shuffle Bonus Code Summary 
