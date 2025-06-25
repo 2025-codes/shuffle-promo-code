@@ -1,7 +1,7 @@
 # Shuffle Promo Code MAX100 – Claim 100% Bonus in 2025
 
 
-## Shuffle Bonus Code Summary 
+## Shuffle Bonus Codes 2025 Summary 
  | Platform  | Promo Code | Welcome bonus |
  | ------------- | ------------- | ------------- |
  | Shuffle | MAX100 | $1000 Welcome Bonus |
